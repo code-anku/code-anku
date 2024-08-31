@@ -2,7 +2,7 @@
 - 👀 I’m a full stack developer  
 - 🌱 I’m currently learning DSA 
 - 💞️ I’m looking for a job opportunity to utilize my learning
-- 📫 connect with me through ____  ankitkumarsingh242001@gmail.com
+- 📫 connect with me through ____  ankitkumarsingh9688@gmail.com
   
 
 
